@@ -1,0 +1,6 @@
+-  Hi, I’m @THE-CREAT0R
+-  I’m interested in web3 development at the moment
+-  I’m currently on a break after high school
+-  Not really on collaborations rn. Just on my journey of learning rn.
+-  How to reach me: roscio.the.creator@gmail.com 
+-  Discord: TheCreator#3815
